@@ -1,0 +1,2 @@
+# introduction
+Real world evidence epidemiologist with 240+ publications in Pubmed (cited by 27,361 in Google Scholar) and  10+ years of experience leading diverse teams in developing research ideas, identifying and executing appropriate statistical strategies, implementing novel methods including AI/ML, interpreting results into clinically impactful presentations and reports, and submitting results leading to conference presentations and manuscripts. Excellent interpersonal and professional skills and driven towards team success. 
